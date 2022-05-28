@@ -1,2 +1,2 @@
 # shut-up
-retard donkey
+idiot donkey
